@@ -1,2 +1,0 @@
-# dramritabatho.github.io
-Portfolio
